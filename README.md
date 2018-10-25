@@ -1,2 +1,0 @@
-# BTS
-BTS Official Shop
